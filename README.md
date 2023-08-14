@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @petrablue007 but you can call me Petra. 
 - 👀 I’m interested in coding and gaming.
+- HAVE A nice day
 
 
 
