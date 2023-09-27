@@ -4,6 +4,4 @@
 - MY favorite movie is hacker, JAMES BOND and mission impossible 1.2 and 3
 - WHAD DO YOU THINK ABOUT ME ?
 - BATMAN AND SUPERMAN 
-- DC 
-OR MARVELL
-VANESSA
+- DC
