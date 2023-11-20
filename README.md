@@ -13,4 +13,3 @@
 - I write a story in github
 - DOY YOU LIKE IT ? 
 or dont 
-choise is yours
