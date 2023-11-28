@@ -11,4 +11,3 @@
 - TELL ME your are on github without telling me your are on github
 - Ill go first
 - I write a story in github
-- DOY YOU LIKE IT ? 
