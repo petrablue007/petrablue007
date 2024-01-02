@@ -7,7 +7,5 @@
 - spiderman, flash, dont know any superheros
 - catwoman, catman, babybatman and many more superheros
 - what is oposite of superheroes ? DO YOU KNOW ?
-
-  
 - tell me the story about your github story
 - TELL ME your are on github without telling me your are on github
